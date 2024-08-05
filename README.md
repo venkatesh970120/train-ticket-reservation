@@ -7,8 +7,3 @@ dwbdvnwqbdq
 \dwqbvdnwqbd
 ndbnnmmas
 asnsa na
-ncsabnsasa
-\
-zjvzdjdzdnj 
-egnrsgr
-nagaegaeg 
